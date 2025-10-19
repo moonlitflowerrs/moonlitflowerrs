@@ -1,5 +1,6 @@
+<p align="center"> <img src="https://wilardo.crd.co/assets/images/gallery25/ec4390cf.gif?v=ca679d09" alt="82"/></p>
 <p align="center"><img src="https://wilardo.crd.co/assets/images/gallery21/0b8d25ce.png?v=ca679d09" alt="82"/></p>
-<p align="center"><img scr="https://i.postimg.cc/6pZrRRQ1/IMG_9214.gif"/> <sup> READ STRAWPAGE !! X3 </sup></p>
+<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery28/d275f877.gif?v=ca679d09" alt="82"/><sup> READ STRAWPAGE !! X3 </sup></p>
 
 <p align="center"> <sup> he/she/they || genderfluid || pansexual || 7teen</sup></p>
 
