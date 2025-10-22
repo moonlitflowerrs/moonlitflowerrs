@@ -6,7 +6,7 @@
 
 <p align="center"><img src="https://wilardo.crd.co/assets/images/gallery03/6858c5f3.gif?v=ca679d09" alt="82"/></p>
 
-<p align="center"> <sup> system  ' doubles dni or iwc </sup></p>
+<p align="center"> <sup> kinshift  ' doubles dni or iwc </sup></p>
 <p align="center"> <sup>Thank you for reading!!</sup></p>
 
 
